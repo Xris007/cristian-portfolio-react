@@ -239,15 +239,15 @@ My experience includes:
 
 LinkedIn
 
-> https://linkedin.com/in/your-profile
+> https://linkedin.com/in/cristianvelasquezr/
 
 GitHub
 
-> https://github.com/yourusername
+> https://github.com/Xris007
 
 Email
 
-> your@email.com
+> c.ramirezev@gmail.com
 
 ---
 
